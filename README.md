@@ -6,6 +6,6 @@
 
 　　　　　　　　　　　　　　　　　✦　︵︵　" are you sure its *me* whos adamant about something? " ৎ
 
-　　　　　　　![New Drawing2 (3)](https://github.com/paperchainsaw/-/assets/172085846/ad3dd650-59a7-45b9-8f27-27baa31cb7f2)
+　　　　　　　　　　　　　![New Drawing2 (3)](https://github.com/paperchainsaw/-/assets/172085846/ad3dd650-59a7-45b9-8f27-27baa31cb7f2)
 
 
