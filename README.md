@@ -1,4 +1,4 @@
-　　　　　　　　　　　　　　　　　౨　" hey *mikey*, i think i found 'em! " ︵︵　✦
+　　　　　　　　　　　　　　　　౨　" hey *mikey*, i think i found 'em! " ︵︵　✦
 
 ![tumblr_0e856981c551cc46d220ac558e7749d5_c1b7bb12_2048](https://github.com/paperchainsaw/-/assets/172085846/28c7a703-089f-4a95-82b9-4be4e06021f4)
 ![New Drawing (21)](https://github.com/paperchainsaw/-/assets/172085846/7de333e4-a788-497d-bbea-ca886a122400)
